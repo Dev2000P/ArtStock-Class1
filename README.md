@@ -1,0 +1,1 @@
+# ArtStock-Class1
